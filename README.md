@@ -1,6 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=algerian&pause=1000&center=true&vCenter=true&width=435&lines=Hi+I+am+Ashirov+Jonibek)](https://git.io/typing-svg)
 
-# Ashirov Jonibek Sodiq o‘g‘li
 📍 Tashkent, Uzbekistan | 📧 ashirov.uzbek.1997@gmail.com | 📱 +998 (94) 616-6869
 
 ## Career Objective
